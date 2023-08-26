@@ -1,7 +1,7 @@
 # Discord Vanity URL Sniper 
 
 Creator : yigitcan / yigit adıguzel
-My Discord Acc : 261200
+My Discord Acc : yigitullah
 
 this sniper is made and shared by yigitcan, it is forbidden to buy and sell for money.
 If you have any questions, you can reach my discord account above.
